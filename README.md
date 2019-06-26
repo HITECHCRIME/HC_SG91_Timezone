@@ -49,3 +49,9 @@ influenced with emotional distress
 
 
 ## Notes
+
+nigga nigga danger
+can we count yui yang - word
+
+suiting never missing
+been in shit till the shit gets - blurred
