@@ -19,27 +19,27 @@ Suicideboys X Night Lovell Type Beat "Scarface" (Prod. NetuH)
 ```
 there is only past and future
 no present to speak of
-creeping slowly time assured
+(creeping) failure slowly time assured
 no presets to lend off
 untainted until send off
+send off
 
 there is only past and future
 no present to speak of
 creeping slowly time assured
 no presets to lend off
 untainted until send off
+send off
 
 time to be aware
 has passed and broke off
 usually it's knockoffs
 like it's ali with no sign ups
-
-
-your daily crazy
-
-ness like a brilliant nest
-nest of horents
+your daily crazy-ness like a brilliant nest
+nest of horents - sawed off
 beaten down with finesse
+
+
 sets your crude logic
 influenced with emotional distress
 
