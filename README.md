@@ -44,14 +44,26 @@ influenced but so apart - tres
 
 fitting always wrapping
 packs ain't missed when coming
+that in sets
 
 that in sets these bowing heads
 to tantric rythm of the golden
 synths - attunement
 sound that clear
-can pierce the eye (can pierce the middle eye)
-in the middle make an assumption (making assumptions)
+can pierce the eye                    ///(can pierce the middle eye)
+in the middle - make an assumption        (making assumptions)
 be besieged with a riddle
+says that (credible) crid bleh              (incredible logi)
+influenced 
+jini of time
+leaving with a sizzle
+drunk on passing
+drizzing
+dre appealing
+melting
+demon filling
+
+
 
 we all know our depth
 some just admit
