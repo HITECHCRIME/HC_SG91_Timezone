@@ -9,6 +9,7 @@
 Description.
 https://www.youtube.com/watch?v=JRxzkT5OStw
 Suicideboys X Night Lovell Type Beat "Scarface" (Prod. NetuH)
+Very similar beat to HC_SG143_Get'em Snitch.
 
 **Title:** x / **Featuring:** x
 
